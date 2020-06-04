@@ -8,7 +8,12 @@
 ###### - Cancer 
 ###### - Non-communicable disease 
 
-#### Felipe Guillen, MD
-## Director, Principal Investigator
+## Felipe Guillen, MD
+#### Director, Principal Investigator
 
 
+###### La Misericordia Clinica Internacional 
+###### 2nd floor, Office of Research and Innovation 
+###### Barranquilla, Colombia
+###### investigaciones@lmci.com.co
+###### 
