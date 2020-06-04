@@ -1,1 +1,1 @@
-# cctr
+# The Center for Clinical and Translational Research
